@@ -13,4 +13,5 @@ Er. Rakesh Kumar (GNDEC batch (1991), ADC Ludhiana.
 They shared their inspiring journey and encouraging students to grow with good skills and learnt more.
 Dr. Kulwinder Singh Mann , Head if IT department completed this event with his speech.
 *#Day2*
-The second day of our college was on 1st August,2025 . Our day was started with proficiency tests. English and Mathematics tests were conducted. After the tests, Students are invited to gathered in auditorium. 
+The second day of our college was on 1st August,2025 . Our day was started with proficiency tests. English and Mathematics tests were conducted. After the tests, Students are invited to gathered in auditorium. After that Buddy 4 Study team guided student on satya scholararship opportunities for 1st year batch.
+Then students attended expert lecture by Dr. Arashdeep Singh on "Food: A pivotal Role in Student's overall wellness" and session by causmic club and launch of induction activities.
